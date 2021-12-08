@@ -1,2 +1,0 @@
-# jiryha
-for faties
